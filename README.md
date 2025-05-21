@@ -1,6 +1,6 @@
 ## Hi! I'm Ray 🎸🧑‍💻
 
-📚🧑‍🎓**I'm** currently persuing **a Computer Science and Technology student on the ITESM** Campus Guadalajara in Mexico<br/>
+📚🧑‍🎓**I'm currently persuing a Computer Science and Technology degree as a student on the ITESM** Campus Guadalajara in Mexico<br/>
 🙌 **I'm a Peer Mentor for freshman students**, I act as their first best friend helping them adapt to their first year at the ITESM<br/>
 🎵🎧 **I love music**, from all genres, **my favourite song is Cosas Imposibles by Gustavo Cerati**, you can listen to it [here](https://open.spotify.com/intl-es/track/7be5IEj6GYti0jauRKODoG?si=730211fdb9364576)<br/>
 🧠 **I love continous learning**, I'm a passionate learner that is always looking into solving problems as methodically and efficient as possible.<br/>
